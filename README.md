@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shujayke@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-SRQD3jF5xgUkKvM0WRv667Qckw1HomX/view?usp=sharing](https://drive.google.com/file/d/1-SRQD3jF5xgUkKvM0WRv667Qckw1HomX/view?usp=sharing)
+- 📄 Know about my experiences [myResume](https://drive.google.com/file/d/1-SRQD3jF5xgUkKvM0WRv667Qckw1HomX/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
